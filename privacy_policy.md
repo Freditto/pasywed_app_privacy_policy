@@ -32,6 +32,6 @@ We may update our Privacy Policy to reflect changes in our data handling practic
 
 ## Contact Us
 
-If you have any questions or concerns about our Privacy Policy, please contact us at [your@email.com].
+If you have any questions or concerns about our Privacy Policy, please contact us at [fredittoherman@gmail.com].
 
 Thank you for choosing PasyWed for your password management needs!
